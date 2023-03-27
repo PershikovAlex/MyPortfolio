@@ -14,5 +14,10 @@
 4. Стать Team Leader крупного IT-проета.
 
 
+**Мои контакты:**
++7-922-111-22-33
+ivanov-ii@gmail.com
+
+
 
 [def]: https://blogo-mir.ru/wp-content/uploads/2020/11/img2.jpg
